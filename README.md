@@ -1,1 +1,1 @@
-# Hello everybody on my github profile 
+# Hello everybody on my GitHub profile 
